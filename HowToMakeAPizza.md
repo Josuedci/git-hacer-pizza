@@ -4,5 +4,6 @@
 1. agregar salsa y peperoni
 2. hornear 
 3. esperar 30 minutos
+luego picarla en slices
 
 
