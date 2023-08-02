@@ -6,5 +6,6 @@
 3. esperar 30 minutos
 luego picarla en slices
 servirla
+y disfrutarla con cocacola
 
 
