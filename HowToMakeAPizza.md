@@ -5,7 +5,7 @@
 2. hornear 
 3. esperar 30 minutos
 4. luego picarla en slices
-servirla
+5. servirla
 y disfrutarla con cocacola
 
 
